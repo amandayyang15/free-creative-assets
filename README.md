@@ -1,1 +1,1 @@
-# free-creative-assets
+# free-creative-resources
